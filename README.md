@@ -1,1 +1,2 @@
-The training be long, the accuracy rare, yet onward we march!
+`He who has a why to live for can bear almost any how.`
+  ~ Friedrich Nietzsche
