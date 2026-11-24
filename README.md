@@ -1,2 +1,2 @@
-`He who has a why to live for can bear almost any how.`
-  ~ Friedrich Nietzsche
+`When it is dark enough, you can see the stars.`
+  ~Ralph Waldo Emerson
